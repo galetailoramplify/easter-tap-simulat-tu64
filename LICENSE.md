@@ -1,4 +1,4 @@
-#  
+#  Experience easter tap simulator like never before with ultimate easter tap simulator Script, the #1 Script. Includes anti-ban and private server
 
 
 
